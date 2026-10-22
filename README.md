@@ -8,7 +8,7 @@
 
 <br />
 
-> *"Words weren't enough, so I turned my apology into code."*
+> *"Words weren't enough, so I turned my apology into code." (Anything for my friend Makkar)*
 
 </div>
 
